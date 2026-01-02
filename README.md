@@ -66,8 +66,8 @@ To start my career as a **Data Analyst**, gain hands-on industry experience, and
 ---
 
 ## 📫 Let’s Connect
-- 💼 LinkedIn: *(www.linkedin.com/in/keerthana-gopal)*
-- 📧 Email: *(keerthanagopal2920@gmail.com)*
+- 💼 LinkedIn: *www.linkedin.com/in/keerthana-gopal*
+- 📧 Email: *keerthanagopal2920@gmail.com*
 
  
 

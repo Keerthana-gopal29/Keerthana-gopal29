@@ -65,9 +65,9 @@ To start my career as a **Data Analyst**, gain hands-on industry experience, and
 
 ---
 
-## 📫Social Presence
-<br /> [<img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white" />](https://github.com/Keerthana-gopal29) 
-Gmail: keerthanagopal2920@gmail.com
+## 📫 Let’s Connect
+- 💼 LinkedIn: *(www.linkedin.com/in/keerthana-gopal)*
+- 📧 Email: *(keerthanagopal2920@gmail.com)*
 
  
 
